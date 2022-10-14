@@ -38,5 +38,6 @@ If you think I am the best fit, after reading carefully my candidate home page, 
 Right after those answers, we will get together and have a serious talk about how to make a deal.
 
 Thanks for your time. Have a nice day.
+---
 _Héctor._
 
