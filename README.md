@@ -32,7 +32,7 @@ Finally, I will share a bit about my current job relationship. I have an excelle
 
 I won't change that for least than that. 
 
-## Do I want a new job?
+## Do I want a new job?
 If you think I am the best fit, after reading carefully my candidate home page, **I insist, after reading carefully my candidate home page**, I expect a couple of things, a very interesting, readable, challenging, attainable proposal and an interesting salary offer, in accordance with the importance and responsibility of that proposal.
 
 Right after those answers, we will get together and have a serious talk about how to make a deal.
