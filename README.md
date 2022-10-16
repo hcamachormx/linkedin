@@ -27,7 +27,7 @@ Regarding my English level, well these lines are written in english and, in rega
 ## About salary
 It is important talk about salary, I won't give you my expected salary, in my opinion it is rude to ask a candidate for their own price. I completely believe in correspondence, if your company is looking for my skills, at least I hope your company can establish a value for them.
 
-## About my current job
+##  About my current job
 Finally, I will share a bit about my current job relationship. I have an excellent position here, fully balanced between my life and work goals. Aware of my skills and my time. I got wellness, dreams, challenges, amazing training options, a great career growth path, access to labs to learning,  and a good salary.
 
 I won't change that for least than that. 
